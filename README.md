@@ -1,3 +1,7 @@
 # M4_jaime_ramirez_rodriguez
 
 https://github.com/jaimeeramiirez/M4_jaime_ramirez_rodriguez.git
+
+HE HECHO TODOS LOS COMMMITS SIN EL READ ME Y ME PONE QUE SOLO HE HECHO DOS COMMITS, NOSE QUE HABRÁ PODIDO PASAR, ESPERO QUE NO ME LO TENGAS MUY EN CUENTA. 
+
+GRACIAS Y PERDONA LAS MOLESTIAS
